@@ -8,3 +8,4 @@ The art and technique of arranging type to make written language legible, readab
 ![allu arjun](https://github.com/user-attachments/assets/23766d2a-6a07-4249-be06-ea02b3e3e813)
 ![typography](https://github.com/user-attachments/assets/0a7cf17c-d1c4-4fd6-9c60-247f9c0c0bb3)
 ![typography (1)](https://github.com/user-attachments/assets/5b29a3b1-33fa-4ba1-bc40-cbff1dfc292e)
+![poster1](https://github.com/NikitaKhuspe1729/Product_Design-CANVA-/assets/125488086/09a17da6-2c8a-4630-9915-41ee67cbaa5f)
